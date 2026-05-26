@@ -1,6 +1,6 @@
 # Privacy Policy for Mood Wellness and Recipe
 
-**Last Updated:** [Date]
+**Last Updated:** December 19, 2025
 
 ## Introduction
 
